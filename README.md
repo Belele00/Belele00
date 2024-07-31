@@ -1,5 +1,5 @@
-## Hi there 👋
-
+## Hello Internet o(^▽^)o
+*im make you lose a extra cromossome*
 <!--
 **Belele00/Belele00** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
