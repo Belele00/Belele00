@@ -1,2 +1,2 @@
 ## Hello Internet o(^▽^)o
-_im gonna make you lose a extra cromossome_
+hoje em dia eu sou estudante, ainda to aprendendo a usar a programação mas eu irei me acustumar
