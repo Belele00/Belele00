@@ -1,3 +1,3 @@
 ## Hello Internet o(^▽^)o
-hoje em dia eu sou estudante, ainda to aprendendo a usar a programação mas eu irei me acustumar
-, no tempo que voce estiver lendo isso eu estarei platinando Dark Souls 3 
+Nowadays I'm a student, I'm still learning how to use programming but I'll get used to it
+, by the time you're reading this I'll be playing Dark Souls 3
